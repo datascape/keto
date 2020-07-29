@@ -105,7 +105,10 @@ finds no difference between sugar in juice and sodas, both increase the chance o
 
 If you feel low on energy on Keto, you're not getting enough daily fat intake. Morning bacon, eggs and avocado are a great healthy fat boost to start your day.
 
+<!--
+# Research to follow...  
 
-
+<a href="https://www.sciencedaily.com/releases/2020/07/200706140905.htm">Increasing eosinophils in belly fat to restore your immune system</a>  
+-->
 <br><br>
 
